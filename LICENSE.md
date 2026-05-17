@@ -1,4 +1,4 @@
-# 
+# Melhor Adobe Premiere Pro para PC scripts é o melhor Adobe Premiere Pro para PC scripts com scripts e buffer de replay. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
